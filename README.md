@@ -28,7 +28,6 @@ Amethyst<br>
 <i>"Unreal... This is it, our ticket to D4 FES!" <i>
 </p>
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3u439uqvr6awh6t62iae46bbt&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=299a59&bar_color_cover=true">
-  </a>
-</p>
+
+
+
