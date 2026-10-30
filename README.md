@@ -21,7 +21,9 @@ Amethyst<br>
             <a href="https://open.spotify.com/track/1uH8RqO7kx4je1VS91Oe02?si=96d2aa591daf45bd"> STREAM HYPERDRIVE BY PLAVE</a><br>
             I'm a huge mozzarella multishipper so any mozzarella ships INT PLSS PLSS PLSS<br>
       Ignore canon, Verbie shippers pls int<br>
-            <br>
+      If you wanna DM me, just use my Twt ig<br>
+      
+
             
 
 <p align="center">
